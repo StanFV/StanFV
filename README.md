@@ -1,4 +1,4 @@
-- 👋 Yooooo @StanFV hier
+- 👋 Yooooo Stan Franken Volmerink hier! (Hudepohl mag ook)
 - 🌱 Momenteel programeer ik veel op mijn opleiding
 - 💞️ Wie weet groote projecten hier in de toekomst.....
 
